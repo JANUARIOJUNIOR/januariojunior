@@ -7,3 +7,7 @@ _ meu nome e januario karaszouski junior
  _ utilizo esse espaço para minha organizaçÂO e compartilhamento dos meus projetos desenvolvidos 
 
  ###voçe entrar em contato comigo 
+
+junior.januario@escola.pr.gov.br
+
+@januario karaszouski junior
