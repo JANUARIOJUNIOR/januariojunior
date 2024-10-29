@@ -11,3 +11,6 @@ _ meu nome e januario karaszouski junior
 junior.januario@escola.pr.gov.br
 
 @januario karaszouski junior
+
+!.[.].(.).
+https://media1.tenor.com/m/mcim7cmggi4AAAAC/naruto.gif
